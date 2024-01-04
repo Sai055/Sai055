@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Sai055
 - 👀 I’m interested in ... fckiing sites
-- 🌱 I’m want to  learning ... Like burp suite 
+- 🌱 Im someone
+  
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...email-puse386@gmail.com
 
